@@ -1,1 +1,1 @@
-Formless Technologies Inc. intends to rapidly iterates on next-generation applications.
+Formless Technologies Inc. intends to rapidly iterate on next-generation applications.
